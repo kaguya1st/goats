@@ -21,5 +21,5 @@ python main.py
 ```
 
 [ JOINTELEGRAM CHANNEL](https://t.me/Pumpbtcxyz)
-| [TWITTER](https://x.com/Nhia1st)
+| [FOLLOW MY TWITTER](https://x.com/Nhia1st)
     
